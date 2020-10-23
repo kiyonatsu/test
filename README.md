@@ -1,4 +1,4 @@
-# Apartment Shopping for Hunter and Cassie #
+# Apartment Shopping for Hunter and Cassy #
 #### The following apartments are located on the Northeast side of Dallas. Areas include Dallas, Irving, Las Colinas, Farmers Branch,  Carrollton, Addison, and Richardson. 
 
 ## Tier 1 Apartment (Only based on my preferences)
@@ -17,6 +17,11 @@
 * Comment: This used to be on my top list, but I really hate their 1 bedroom floorplan and that's why I gave up.
 
 ### [The Village Dallas](https://www.thevillagedallas.com/index.html), close to SMU, 5 mins away from our apartment, Google rating 4.3
-This is actually a community that has about 10 different apartments. If you go to their website and click 'The Neighborhoods', you will see all the apartments they have. 
+* This is actually a community that has about 10 different apartments. If you go to their website and click 'The Neighborhoods', you will see all the apartments they have. And price vary based on different 'Neighborhood'.
 * Pros: Nice community, close to our apartment so we can hangout more. Have stores like Tom Thumb, Target, Walmart, etc. And lots of food place.
-* Cons: it's not really cons, but the community have their own electriicity company 
+* Cons: it's not really cons, but the community use their own electriicity company, so you basically don't have a choice. 
+* Comment: Leighton would be really happy if you choose to live here.
+
+### [Metropolitan at Cityplace](https://www.apartments.com/metropolitan-at-cityplace-dallas-tx/53smwkq/), located on 75 close to uptown, Google rating 3.9
+* Nice apartment that is close to ours, only 2 bedroom 1 bathroom ones are below budget.
+
