@@ -2,6 +2,7 @@
 #### The following apartments are located on the Northeast side of Dallas. Areas include Dallas, Irving, Las Colinas, Farmers Branch,  Carrollton, Addison, and Richardson. 
 
 ## Tier 1 Apartment (Only based on my preferences)
+
 ### [LIV at Valley Ranch Apartments](https://www.apartments.com/liv-at-valley-ranch-irving-tx/zwylpmx/), located at the crossing of George Bush and 635, Google rating 3.8.
 * Pros: Nice apartment have everything you need, trash valet, and covered parking. about 15 to 20 mins drive to Addison (I assume Hunter works in that area according to Leighton)
 * Cons: Only the 2 bedrooms 1 bathroom floor plan is right below your budget. But 986 sqft should be enough for you two.
@@ -24,4 +25,43 @@
 
 ### [Metropolitan at Cityplace](https://www.apartments.com/metropolitan-at-cityplace-dallas-tx/53smwkq/), located on 75 close to uptown, Google rating 3.9
 * Nice apartment that is close to ours, only 2 bedroom 1 bathroom ones are below budget.
+
+### [Villas of Josey Ranch Apartments](https://www.apartments.com/villas-of-josey-ranch-apartments-carrollton-tx/6z2nh2r/), close to Hmart in Carrollton, Google rating 3.7
+* Nice townhouse style apartment, good reviews and close to Korea town (means some late night good food).
+
+### [The Club at Riverchase](https://www.apartments.com/the-club-at-riverchase-coppell-tx/z59xpgw/), close to Carrollton, Google rating 3.9
+* Relatively cheaper than others
+
+### [Gramercy on the Park](https://www.apartments.com/gramercy-on-the-park-dallas-tx/bwmgeb9/), located at the crossing of DNT and George Bush, Google rating 3.5 
+
+### [Addison Keller Springs](https://www.apartments.com/addison-keller-springs-addison-tx/4rzm0vj/), located at the crossing of DNT and George Bush, Google rating 4.0
+
+### [The Residence At North Dallas](https://www.apartments.com/the-residence-at-north-dallas-dallas-tx/nqqwykn/#reviewsSection),  not far from Addison Airport, Google rating 3.9
+* Nice and cheap apartment
+
+### [Reflections at Valley Ranch](https://www.apartments.com/reflections-at-valley-ranch-irving-tx/frgsjkr/), Google rating 3.7
+
+## Tier 2 Apartment
+
+### [The Arches at Park Cities](https://www.apartments.com/the-arches-at-park-cities-dallas-tx/0xyzdw0/), close to Love Field Airport, Google rating 3.7
+* Pros: Nice apartment with a better price. Close to food place and Tom Thumb.
+* Cons: Close to Love Field Airport, don't know if it's gonna be loud.
+
+### [Adair Off Addison](https://www.apartments.com/adair-off-addison-dallas-tx/44mprvk/), not far from Addison Airport, Google rating 3.9
+* They have a good google rating, but on this apartment website ppl complain about security deposiite thing, that's why I put it in the second tier.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
